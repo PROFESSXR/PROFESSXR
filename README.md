@@ -4,7 +4,7 @@
 🗾 INDIAN 🇮🇳
 
 
-[!PROFESSOR PROJECTS](https://t.me/professor_projects)
+[PROFESSOR PROJECTS](https://t.me/professor_projects)
 
 
 # 💻Tech Stack
